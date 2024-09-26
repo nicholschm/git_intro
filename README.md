@@ -1,1 +1,2 @@
 Nicholas Schmidt
+schmnich@oregonstate.edu
